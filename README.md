@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @khangkk2k4.
+- 👀 I’m interested in coding, playing mobile games, and listening to music.
+- 🌱 I’m currently learning machine learning and deep learning.
+- 📫 my link FB: https://www.facebook.com/xuankhang.pham.758/
